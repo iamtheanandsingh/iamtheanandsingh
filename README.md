@@ -4,5 +4,5 @@
 - 💞️ Don't Prefer Collaboration
 - 📫 You Can Reach Me On :
 - LinkedIn : linkedin.com/in/iamtheanandsingh/
-- Instagram : instagram.com/i.anand.singh
+- Instagram : instagram.com/amianands
 - Facebook : facebook.com/iamtheanandsingh/
